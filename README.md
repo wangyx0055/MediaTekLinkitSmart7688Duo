@@ -1,0 +1,1 @@
+# MediaTekLinkitSmart7688Duo
